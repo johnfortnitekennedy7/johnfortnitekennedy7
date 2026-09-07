@@ -1,4 +1,4 @@
-<img width="638" height="896" alt="IMG_7445" src="https://github.com/user-attachments/assets/75b488fe-c03a-4993-8d42-796b1c8989a3" />
+<img width="100" height="300" alt="IMG_7445" src="https://github.com/user-attachments/assets/75b488fe-c03a-4993-8d42-796b1c8989a3" />
 do you like my son 
 
 
