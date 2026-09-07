@@ -1,4 +1,7 @@
-<img width="1200" height="337" alt="2cb41e3a0b090dca7f16eb72eb03a8de" src="https://github.com/user-attachments/assets/9b838ce6-6ca0-4480-b28a-4763ca5e5738" />
-# hHi 
-IF YOU HAD SEeen Me i was Likely one of my EATEOT ponies or an oc
-i am Usually At bakery
+do you like my son 
+
+
+<img width="316" height="316" alt="The_caretaker_an_empty_bliss_beyond_this_world" src="https://github.com/user-attachments/assets/2d327fed-75e1-4cf8-92fe-246253776e58" />
+
+
+his name is an empty la peace beyond this world
